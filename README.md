@@ -1,2 +1,1 @@
 # wavoc.me
-Aziz qale?
